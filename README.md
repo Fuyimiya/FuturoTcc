@@ -10,5 +10,6 @@ proje, explorando como a tecnologia pode
 transformar o cotidiano. Além disso, ele é um entusiasta 
 de eventos relacionados à cultura pop, onde se conecta 
 com outros fãs e compartilha suas experiências.
+link do meu linkedim: https://www.linkedin.com/in/josu%C3%A9-rodrigues758/
 
 
